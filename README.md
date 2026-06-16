@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CACM011220HMCSRXA4
+CACM011220HMCSRXA4
